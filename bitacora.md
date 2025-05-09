@@ -1,0 +1,1 @@
+** ENTRADA DE BITACORA1 **
